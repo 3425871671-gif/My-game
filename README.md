@@ -1,0 +1,2 @@
+# My-game
+A EASY GAME FOR EVERYONE
